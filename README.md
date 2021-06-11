@@ -1,3 +1,3 @@
-this project is a semple desing  and cerate and contact paage word data base![1](https://user-images.githubusercontent.com/85412055/121637147-9948d080-caa6-11eb-89ae-25714e25b53b.png)
-![2](https://user-images.githubusercontent.com/85412055/121637163-9cdc5780-caa6-11eb-8c14-e60872c38dd6.png)
+this project is a semple desing  and cerate and contact paage word data base![Home _ Sanrajenterprises_page-0001](https://user-images.githubusercontent.com/85412055/121637596-3d327c00-caa7-11eb-9313-11342a454fcd.jpg)
+
 
